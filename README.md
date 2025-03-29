@@ -26,9 +26,9 @@ I don’t just write code—I **engineer solutions**, blending creativity with p
 *"Superposition of ideas, collapsing into action when observed."*  
 
 ## 📫 How to reach me  
-📩 Email: [YourEmail@example.com]  
-🔗 LinkedIn: [Your LinkedIn Profile]  
-🌐 Portfolio: [Your Portfolio Website]  
+📩 Email: skarsan02@gmail.com  
+🔗 LinkedIn: update soon  
+🌐 Portfolio: update soon
 
 ## 😄 Pronouns  
 He/Him  
