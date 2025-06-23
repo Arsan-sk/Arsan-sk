@@ -27,7 +27,7 @@ I don’t just write code—I **engineer solutions**, blending creativity with p
 
 ## 📫 How to reach me  
 📩 Email: skarsan02@gmail.com  
-🔗 LinkedIn: update soon  
+🔗 LinkedIn: https://www.linkedin.com/in/shaikh-arsan-21a51828b/ 
 🌐 Portfolio: update soon
 
 ## 😄 Pronouns  
